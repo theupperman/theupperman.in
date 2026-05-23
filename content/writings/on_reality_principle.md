@@ -4,7 +4,7 @@ date: 2026-05-23
 tags: ["society"]
 ---
 
-> “Facts do not cease to exist because they are ignored.”
+> Facts do not cease to exist because they are ignored.
 
 The inspiration for writing this article came from a comment I saw in one of the Telegram groups I am part of. A woman was complaining that her parents would not allow her to travel alone at night. According to her, the reason was “internalized misogyny.” Keep in mind that this was an English-educated, young, urban, middle-class working woman.
 
