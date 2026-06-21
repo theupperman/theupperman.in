@@ -4,6 +4,8 @@ date: 2026-03-15
 description: "Importance of information diet"
 tags: ["society"]
 ---
+>Society isn't made for the philosophical, the contemplative, or the intelligent. It's made for the cattle. And cattle can be perpetually entertained by bread and circuses.
+
 Most people today understand the harmful effects of regularly consuming junk food. Social institutions and doctors worldwide have done a commendable 
 job promoting this idea. What is rarely addressed, however, is the quality of our media consumption.
 
