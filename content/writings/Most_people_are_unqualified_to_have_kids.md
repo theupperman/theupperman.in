@@ -8,7 +8,7 @@ tags: ["society"]
 
 Most Indians assume that having kids after marriage is some sort of predestined logical conclusion. After marriage, relatives start to ask when they are going to hear the "happy news", and even parents start guilt-tripping for the continuation of their glorious(?) legacy.
 
-Giving birth to a child is a monumental decision. Being born is the first and greatest violation of consent in a person's life. Birth imposes the entire burden and risk of existence on someone who never had the opportunity to agree. So it should be treated with the philosophical depth it deserves. This is especially true for Indians, as their child is going to be born in a third world shit hole. I myself would not have agreed to be born in India if I had a choice. I would have preferred Sweden, Finland or Denmark.
+Giving birth to a child is a monumental decision. Being born is the first and greatest violation of consent in a person's life. Birth imposes the entire burden and risk of existence on someone who never had the opportunity to agree. So it should be treated with the philosophical depth it deserves. This is especially true for Indians, as their child is going to be born in a third world country with poor social mobility. I myself would not have agreed to be born in India if I had a choice. I would have preferred Sweden, Finland or Denmark.
 
 Before giving birth, think about these things:
 
